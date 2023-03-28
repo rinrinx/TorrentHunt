@@ -123,7 +123,6 @@ AMAZING GAIN EVERY DAY!
 
 <b>Don't believe it? CHECK IT NOW!</b>
 
-https://t.me/+qQAtnVzfy7EyNTQy
 
  👆👆👆
 '''
